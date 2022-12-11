@@ -1,1 +1,0 @@
-# Zarz-dzanie-to-samo-ci-i-dost-pem-do-zasob-w
